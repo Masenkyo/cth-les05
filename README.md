@@ -8,4 +8,4 @@
 
 ### 2Ondertussen maak je van het pizzadeeg een mooie ronde pizzabodem. Als de saus een mooie structuur heeft, bedek je hiermee de bodem van de pizza. Beleg de pizza vervolgens met mozzarella en daarna met de plakjes salami. Zet de pizza 15 tot 20 minuutjes in de oven. Haal de pizza salami uit de oven, klaar om aan te vallen? Buon appetito
 
-<https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.thuisbezorgd.nl%2Ffoodwiki%2Fitalie%2Fpizza%2F&psig=AOvVaw1axQtWnpACdMsFPRxfPaWB&ust=1632910190921000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCOjT_dW2ofMCFQAAAAAdAAAAABAD>
+<https://www.restaurant-noya.nl/wp-content/uploads/2020/11/image.jpeg>
